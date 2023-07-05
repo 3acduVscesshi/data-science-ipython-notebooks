@@ -1,0 +1,33 @@
+# Manual CTO de Medicina y CirugÃ­a: FarmacologÃ­a
+ 
+El Manual CTO de Medicina y CirugÃ­a es una obra de referencia para los estudiantes y profesionales de la salud que abarca los principales temas de las distintas especialidades mÃ©dicas. En este artÃ­culo, nos centraremos en el manual de farmacologÃ­a, que corresponde a la octava ediciÃ³n de la serie.
+ 
+**DOWNLOAD ✓ [https://t.co/4iULsoIYs2](https://t.co/4iULsoIYs2)**
+
+
+ 
+La farmacologÃ­a es la ciencia que estudia el origen, la composiciÃ³n, las propiedades y los efectos de las sustancias quÃ­micas que actÃºan sobre los seres vivos. Es una disciplina fundamental para el diagnÃ³stico, la prevenciÃ³n y el tratamiento de las enfermedades, asÃ­ como para el desarrollo de nuevos fÃ¡rmacos.
+ 
+El manual de farmacologÃ­a del CTO estÃ¡ dividido en 47 capÃ­tulos que abordan los diferentes grupos farmacolÃ³gicos, desde los principios generales hasta las aplicaciones terapÃ©uticas. Cada capÃ­tulo incluye una introducciÃ³n, una clasificaciÃ³n, una descripciÃ³n de los mecanismos de acciÃ³n, los efectos adversos, las interacciones, las indicaciones y las contraindicaciones de los fÃ¡rmacos mÃ¡s relevantes. AdemÃ¡s, se incorporan tablas, esquemas, algoritmos y casos clÃ­nicos para facilitar el aprendizaje y la memorizaciÃ³n.
+ 
+El manual estÃ¡ actualizado con las Ãºltimas novedades en el campo de la farmacologÃ­a, como los nuevos fÃ¡rmacos aprobados por las agencias reguladoras, los avances en la farmacogenÃ©tica y la farmacovigilancia, y las recomendaciones basadas en la evidencia cientÃ­fica. Asimismo, se hace hincapiÃ© en los aspectos mÃ¡s importantes para la prÃ¡ctica clÃ­nica y para la preparaciÃ³n de los exÃ¡menes MIR y EIR.
+ 
+El manual de farmacologÃ­a del CTO es un recurso imprescindible para todos aquellos que quieran adquirir o actualizar sus conocimientos sobre esta materia tan amplia y compleja. Se puede descargar en formato PDF desde el siguiente enlace[^1^].
+
+En este apartado, vamos a repasar algunos de los capÃ­tulos mÃ¡s destacados del manual de farmacologÃ­a del CTO.
+ 
+## CapÃ­tulo 1: Principios generales de farmacologÃ­a
+ 
+Este capÃ­tulo introduce los conceptos bÃ¡sicos de la farmacologÃ­a, como la farmacocinÃ©tica (lo que el organismo hace con el fÃ¡rmaco) y la farmacodinamia (lo que el fÃ¡rmaco hace al organismo). TambiÃ©n se explica la nomenclatura de los fÃ¡rmacos, la clasificaciÃ³n de las formas farmacÃ©uticas, las vÃ­as de administraciÃ³n y los factores que modifican la respuesta a los fÃ¡rmacos. Por Ãºltimo, se abordan los temas de la farmacoterapia racional, la prescripciÃ³n mÃ©dica y la adherencia al tratamiento.
+ 
+## CapÃ­tulo 2: FarmacologÃ­a del sistema nervioso autÃ³nomo
+ 
+Este capÃ­tulo se ocupa de los fÃ¡rmacos que actÃºan sobre el sistema nervioso autÃ³nomo (SNA), que es el encargado de regular las funciones involuntarias del organismo, como la frecuencia cardÃ­aca, la presiÃ³n arterial, la respiraciÃ³n, la digestiÃ³n y la secreciÃ³n. Se distinguen dos ramas del SNA: el sistema nervioso simpÃ¡tico (SNS) y el sistema nervioso parasimpÃ¡tico (SNP). Los fÃ¡rmacos que actÃºan sobre el SNA se clasifican en agonistas y antagonistas de los receptores adrenÃ©rgicos (alfa y beta) y colinÃ©rgicos (muscarÃ­nicos y nicotÃ­nicos).
+ 
+## CapÃ­tulo 3: FarmacologÃ­a del sistema nervioso central
+ 
+Este capÃ­tulo trata de los fÃ¡rmacos que actÃºan sobre el sistema nervioso central (SNC), que es el encargado de procesar la informaciÃ³n sensorial y coordinar las funciones cognitivas, emocionales y motoras. Los fÃ¡rmacos que actÃºan sobre el SNC se clasifican en anestÃ©sicos generales y locales, analgÃ©sicos opioides y no opioides, antiinflamatorios no esteroideos (AINE), antipirÃ©ticos, antiepilÃ©pticos, antiparkinsonianos, antipsicÃ³ticos, antidepresivos, ansiolÃ­ticos, hipnÃ³ticos, estimulantes y nootrÃ³picos.
+ 
+manual cto 8 edicion farmacologia pdf gratis,  manual cto 8 edicion farmacologia pdf descargar,  manual cto 8 edicion farmacologia pdf online,  manual cto 8 edicion farmacologia pdf completo,  manual cto 8 edicion farmacologia pdf mega,  manual cto 8 edicion farmacologia pdf download,  manual cto 8 edicion farmacologia pdf free,  manual cto 8 edicion farmacologia pdf libro,  manual cto 8 edicion farmacologia pdf resumen,  manual cto 8 edicion farmacologia pdf indice,  manual cto 8 edicion farmacologia pdf capitulo 1,  manual cto 8 edicion farmacologia pdf capitulo 2,  manual cto 8 edicion farmacologia pdf capitulo 3,  manual cto 8 edicion farmacologia pdf capitulo 4,  manual cto 8 edicion farmacologia pdf capitulo 5,  manual cto 8 edicion farmacologia pdf capitulo 6,  manual cto 8 edicion farmacologia pdf capitulo 7,  manual cto 8 edicion farmacologia pdf capitulo 8,  manual cto 8 edicion farmacologia pdf capitulo 9,  manual cto 8 edicion farmacologia pdf capitulo 10,  manual cto 8 edicion farmacologia pdf introduccion,  manual cto 8 edicion farmacologia pdf conceptos basicos,  manual cto 8 edicion farmacologia pdf principios generales,  manual cto 8 edicion farmacologia pdf clasificacion de los medicamentos,  manual cto 8 edicion farmacologia pdf mecanismos de accion,  manual cto 8 edicion farmacologia pdf absorcion y distribucion,  manual cto 8 edicion farmacologia pdf metabolismo y eliminacion,  manual cto 8 edicion farmacologia pdf interacciones y efectos adversos,  manual cto 8 edicion farmacologia pdf dosis y vias de administracion,  manual cto 8 edicion farmacologia pdf monitorizacion y ajuste de dosis,  manual cto 8 edicion farmacologia pdf farmacos del sistema nervioso central,  manual cto 8 edicion farmacologia pdf farmacos del sistema cardiovascular,  manual cto 8 edicion farmacologia pdf farmacos del sistema respiratorio,  manual cto 8 edicion farmacologia pdf farmacos del sistema digestivo,  manual cto 8 edicion farmacologia pdf farmacos del sistema endocrino,  manual cto 8 edicion farmacologia pdf farmacos del sistema inmunologico,  manual cto 8 edicion farmacologia pdf farmacos del sistema renal y urinario,  manual cto 8 edicion farmacologia pdf farmacos del sistema reproductor,  manual cto 8 edicion farmacologia pdf antibioticos y antimicrobianos,  manual cto 8 edicion farmacologia pdf antiparasitarios y antifungicos,  manual cto 8 edicion farmacologia pdf antineoplasicos e inmunomoduladores,  manual cto 8 edicion farmacologia pdf analgesicos y antiinflamatorios,  manual cto 8 edicion farmacologia pdf anestesicos y relajantes musculares,  manual cto 8 edicion farmacologia pdf anticoagulantes y antitromboticos,  manual cto 8 edicion farmacologia pdf antihistaminicos y antialergicos,  manual cto 8 edicion farmacologia pdf vitaminas y minerales
+ 8cf37b1e13
+ 
